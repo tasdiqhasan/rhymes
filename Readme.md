@@ -1,1 +1,1 @@
-This repo is a collection of my favorite nasi rames.
+This repo is a collection of my favorite rhymes.
